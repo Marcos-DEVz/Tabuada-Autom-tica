@@ -1,1 +1,0 @@
-# Tabuada-Autom-tica
